@@ -240,15 +240,15 @@ Et j'ai pompé ta vie avec ma trompe immonde!**
 
 ##
 
->Remember! Souviens-toi! prodigue! Esto memor!
-(Mon gosier de métal parle toutes les langues.)
-Les minutes, mortel folâtre, sont des gangues
-Qu'il ne faut pas lâcher sans en extraire l'or!
+>Remember! Souviens-toi! prodigue! Esto memor!  
+(Mon gosier de métal parle toutes les langues.)  
+Les minutes, mortel folâtre, sont des gangues  
+Qu'il ne faut pas lâcher sans en extraire l'or!  
 
 ## vers 1 et 2
 
->**Remember! Souviens-toi! prodigue! Esto memor!  
-(Mon gosier de métal parle toutes les langues.)**  
+>**Remember! Souviens-toi! prodigue! Esto memor!   
+(Mon gosier de métal parle toutes les langues.)**    
 Les minutes, mortel folâtre, sont des gangues  
 Qu'il ne faut pas lâcher sans en extraire l'or!  
 
